@@ -30,3 +30,14 @@ It was also about at this age that David grew into his unmistakable laugh.
 David always had an exuberant laugh.
 Frequently disarming when he was small, he would sometimes sneak up on his cousins and surprise them with ... a laugh.
 Suddenly aware of David's presence, the surprised cousin would turn around with eyes wide open, to see him grinning back with his equally unmistakable smile.
+
+In the same way that Alvena's door is always open to anyone, David's warmth and smile were always the beginning of every new friendship he made.
+Before David joined Kindergarten, Alvena would take him across the continent in the cab of her semi truck.
+This marked the beginning of David and Alvena as a team -- not just family, but partners.
+It also marked the beginning of David's tendency to make friends with anyone and everyone.
+Once, while stopped for fuel on the way to Los Angeles, David was approached by one of the other truckers, who later recounted this story to Alvena.
+"What's your name, little man?" asked the trucker.
+"My name's David. What's yours?"
+"My name's Robert."
+"Well, Robert," repied David, "my Mom says I'm actually not supposed to talk to strangers."
+He thought for a second and then added: "But now that I know your name, we're not strangers anymore."
