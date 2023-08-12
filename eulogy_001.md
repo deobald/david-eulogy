@@ -25,3 +25,8 @@ He jumped.
 He skipped.
 But he did not walk.
 It was David's inexhaustable energy that so many people throughout his life would know him for.
+
+It was also about at this age that David grew into his unmistakable laugh.
+David always had an exuberant laugh.
+Frequently disarming when he was small, he would sometimes sneak up on his cousins and surprise them with ... a laugh.
+Suddenly aware of David's presence, the surprised cousin would turn around with eyes wide open, to see him grinning back with his equally unmistakable smile.
