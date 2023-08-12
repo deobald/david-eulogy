@@ -17,3 +17,11 @@ When they were, Irene was often tempted to dress them in identical clothing.
 In 1983, when David was two, Alvena left him with his aunt Irene for a sleepover.
 Irene gave the two boys matching outfits and took them out grocery shopping.
 Approaching the checkout counter, a smiling Ukrainian woman exclaimed "Oh, how adorable!" then proceded to ask: "Are they twins?"
+
+David was a memorable two-year-old.
+At two, David did not walk.
+He ran.
+He jumped.
+He skipped.
+But he did not walk.
+It was David's inexhaustable energy that so many people throughout his life would know him for.
