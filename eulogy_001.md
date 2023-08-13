@@ -67,3 +67,10 @@ Toward the end of his highschool career, David fell in love with two sports: wre
 Wrestling attracted him directly but football required encouragement.
 Gene Scott, who would become his coach, brought him to football with the words: "You. I want YOU on the football team."
 [ Many of the difficulties David faced in high school were balanced by the strength and success he found in sports. ]
+
+Over the years, David acquired many skills in the trades.
+He apprenticed in welding at Advanced Engineering.
+He learned masonry and carpentry -- and found jobs in both.
+Most recently, he achieved his full certification in roofing.
+David found deep satisfaction in the completion of a job -- and it was often the most difficult jobs he enjoyed the most.
+His Facebook feed is peppered with photos of his broad smile at his most recent job site.
