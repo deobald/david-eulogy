@@ -57,7 +57,8 @@ Second, the surreal spaceships and landscapes David would create hinted at the a
 [ TODO: do we bother mentioning the grand theft auto? :p ]
 
 In his early teens, David would paint and draw -- often digitally.
-At this age he also began listening to rap and hip-hop, which encouraged him to explore lyrics and poetry for himself.
+At this age he also began listening to rap and hip-hop.
+This encouraged him to explore lyrics and poetry for himself, though he was perhaps more private about this aspect of his life than any other.
 Few of us in this room have heard David perform his poetry.
 Those of you who have already know how fortunate you are.
 
@@ -66,11 +67,22 @@ Those of you who have already know how fortunate you are.
 Toward the end of his highschool career, David fell in love with two sports: wrestling and football.
 Wrestling attracted him directly but football required encouragement.
 Gene Scott, who would become his coach, brought him to football with the words: "You. I want YOU on the football team."
-[ Many of the difficulties David faced in high school were balanced by the strength and success he found in sports. ]
+[ Many of the difficulties David faced in high school were balanced by the strength, success, and friendships he found in sports. ]
 
-Over the years, David acquired many skills in the trades.
+When his cousins moved to Regina to attend university, David  selflessly introduced them to the many friends he made at Rober Usher high school.
+David was always generous with his time, money, and friendships in a way that many of us struggle with.
+
+Over the following years, David acquired many skills and friends in the trades.
 He apprenticed in welding at Advanced Engineering.
 He learned masonry and carpentry -- and found jobs in both.
 Most recently, he achieved his full certification in roofing.
 David found deep satisfaction in the completion of a job -- and it was often the most difficult jobs he enjoyed the most.
 His Facebook feed is peppered with photos of his broad smile at his most recent job site.
+
+David was well-known, and well-liked.
+When David had money, he would share it with you.
+When David had time, he would spend it with you.
+In the hardest times, if all David had was his smile and his laugh, he would give you that.
+This is the tenacity of David's generosity.
+We can remember him this way throughout our own lives.
+In that memory, we can strive to see and treat others the way David did when he was at his best.
