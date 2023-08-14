@@ -17,7 +17,7 @@ Both round.
 
 When they were together, the sisters were often tempted to dress the two boys in identical clothing.
 On one such occasion, the two-year-old cousins -- in matching outfits -- went on a shopping trip to a grocery store in Yorkton.
-Approaching the checkout counter, a smiling old Ukranian woman exclaimed "Oh, how adorable!" then proceded to ask: "Are they twins?"
+Approaching the checkout counter, a smiling old Ukranian woman exclaimed "Oh, how adorable!" then proceeded to ask: "Are they twins?"
 
 David was unforgettable as a two-year-old.
 At two, David did not walk.
@@ -25,7 +25,7 @@ He ran.
 He jumped.
 He skipped.
 But he did not walk.
-It was David's inexhaustable energy that so many people throughout his life would recognize him for.
+It was David's inexhaustible energy that so many people throughout his life would recognize him for.
 
 It was also about at this age that David grew into his unmistakable, lifelong laugh.
 Frequently disarming even when he was small, he would sometimes sneak up on his cousins and surprise them with ... his signature laugh.
@@ -39,7 +39,7 @@ Once, while stopped for fuel on the way to Los Angeles, David was approached by 
 "What's your name, little man?" asked the trucker.
 "My name's David. What's yours?"
 "My name's Robert."
-"Well, Robert," repied David, "my Mom says I'm actually not supposed to talk to strangers."
+"Well, Robert," replied David, "my Mom says I'm actually not supposed to talk to strangers."
 He thought for a second and then added: "But now that I know your name, we're not strangers anymore."
 
 This partnership of Alvena and David's didn't achieve an official status until the incorporation of A&D Systems in the early 2000s.
@@ -77,6 +77,8 @@ Most recently, he achieved his full certification in roofing.
 David found deep satisfaction in the completion of a job.
 It was often the most difficult jobs that he took the most pride in.
 His Facebook feed is peppered with photos of his broad smile at each job site.
+
+[ TODO: if Pastor Rapley has stories of David's recent years and his faith, they could go here. ]
 
 David was well-known, and well-liked.
 When David had money, he would share it with you.
