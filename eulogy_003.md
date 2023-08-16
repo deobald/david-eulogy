@@ -10,13 +10,12 @@ His tenacity is one of the many qualities we remember David for today.
 Perhaps the hardest aspect remembering him today is that (after decades of these obstacles) David's early death comes at a point in his life when he was beginning to see more sun than clouds.
 
 David was born to Alvena and Paul on July 28th, 1981.
-Two days later, Alvena's sister Irene gave David a cousin.
-The two boys were often together in their early years.
-Quite the pudgy pair they were: one a brown curly top and one a pale blonde.
-Both round.
+Two days later, Alvena's sister Irene gave David a cousin ...me.
+The two of us were often together in their early years.
+Although I only know this based on photos, we were apparently quite the pudgy pair of two-year-olds.
 
-When they were together, the sisters were often tempted to dress the two boys in identical clothing.
-On one such occasion, the two-year-old cousins -- in matching outfits -- went on a shopping trip to a grocery store in Yorkton.
+When we were together, our Moms were often tempted to dress us in identical clothing.
+On one such occasion, the two of us -- in matching outfits -- went on a shopping trip to a grocery store in Yorkton.
 Approaching the checkout counter, a smiling old Ukranian woman exclaimed "Oh, how adorable!" then proceeded to ask: "Are they twins?"
 
 David was unforgettable as a two-year-old.
@@ -27,6 +26,22 @@ He skipped.
 But he did not walk.
 It was David's inexhaustible energy that so many people throughout his life would recognize him for.
 
+When he was 5, David stayed with his cousins in the McLaren family while Alvena was taking a robotics course in Moose Jaw.
+Auntie Julie recounts David pouring enthusiasm, exuberance, and energy into absolutely everything he did.
+Except for skating.
+According to Julie: "Skating... he did not like."
+Skating was perhaps akin to slow walking for young David.
+
+So energetic was David in the McLaren household that when uncle Hugh would come home from work and bend down to hug all the kids, David's hug arrived at sufficient velocity to knock Hugh on his butt.
+Those who witnessed this -- and remember Hugh's laugh upon being bowled over -- might find comfort in knowing that now David is with Hugh again, who loved him so unconditionally.
+
+David's energy remained spirited througout his life.
+As we all grew older, visits with extended family had gaps measured in years instead of months.
+But no matter how long it had been, David's joy and energy was the first thing you would notice when he stepped out of a car to say hello to any family.
+As Lindsay recounted to me: "Every time I have seen him, he was always excited to see me."
+When you were around David, at any age, it was surprisingly easy to feel loved.
+
+Back to his early childhood, though.
 It was also about at this age that David grew into his unmistakable, lifelong laugh.
 Frequently disarming even when he was small, he would sometimes sneak up on his cousins and surprise them with ... his signature laugh.
 Suddenly aware of David's presence, the surprised cousin would turn around with eyes wide open, only to see him grinning back with his equally unmistakable smile.
