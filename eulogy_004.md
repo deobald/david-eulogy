@@ -48,7 +48,7 @@ Those who witnessed this -- and remember Hugh's laugh upon being bowled over -- 
 David's energy remained spirited througout his life.
 As we all grew older, visits with extended family found gaps measured in years instead of months.
 But no matter how long it had been, David's joy and energy were the first things you would notice when he stepped out of a car to say hello to any family.
-As Lindsay recalled: "Every time I have seen him, he was always excited to see me."
+As Lindsay recalled: "Every time I have seen him, he was _always_ excited to see me."
 When you were around David, at any age, it was surprisingly easy to _feel loved._
 
 ---
@@ -66,13 +66,19 @@ Young, but already halfway through his story.
 Still, his smile was the same at 18, as it was when he was a Preschooler, as it was last year.
 
 In the same way that Alvena's door is always open to anyone, David's warmth and smile were always the beginning of every new friendship he made.
+
 Before David joined Kindergarten, Alvena would take him across the continent in the cab of her semi truck.
 This marked the beginning of David and Alvena as a team -- not just family, but partners.
 It also marked the beginning of David's tendency to make friends with anyone and everyone.
+
 Once, while stopped for fuel on the way to California, David was approached by one of the other truckers, who later recounted this story to Alvena.
+
 "What's your name, little man?" asked the trucker.
+
 "My name's David. What's yours?"
+
 "My name's Peter."
+
 "Well, Peter," replied David, "my Mom says I'm actually not supposed to talk to strangers."
 He thought for a second and then added: "But now that I know your name, we're not strangers anymore."
 
@@ -97,7 +103,7 @@ Second, the surreal spaceships and landscapes David built hinted at the art he w
 ## Art & Music
 
 In his teens and twenties, David would paint and draw -- often digitally.
-On the back of your program you will find one of David's original digital prints.
+On the back of your program you will find one of David's original digital prints from this time.
 
 At this age he also began listening to more rap and hip-hop.
 This encouraged him to explore lyrics and poetry for himself, though he was perhaps more private about this aspect of his life than any other.
@@ -158,4 +164,4 @@ And, under the hardest circumstances, if all David had was his smile and his lau
 This was the tenacity of David's generosity.
 
 We are enriched by remembering David's generosity throughout our own lives.
-And, in that memory, we can strive to see and treat others in the same way.
+And, in that memory, may we strive to see and treat others in the same way.
