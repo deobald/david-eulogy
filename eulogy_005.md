@@ -141,10 +141,10 @@ The strength, success, and friendships he found in sports brought structure and 
 When his cousins attended university in Regina, David selflessly introduced them to the many friends he made at Robert Usher high school.
 
 David saw the world differently.
-As a result, David was always generous with his time, money, and friendships in a way that many of us struggle to achieve.
+As a result, David was always generous with his friendships in a way that many of us struggle to achieve.
 
 Over the following years, David acquired many more skills and friends in the trades.
-He apprenticed in welding at Advanced Engineering.
+He apprenticed in welding at Advance Engineered Products Group.
 He learned masonry and carpentry.
 Most recently, he achieved his full certification in roofing.
 David found deep satisfaction in the completion of a job.
